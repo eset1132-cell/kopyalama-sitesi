@@ -1,1 +1,0 @@
-# kopyalama-sitesi
